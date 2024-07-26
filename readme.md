@@ -8,3 +8,5 @@
   ADMIN LAGI SAD YAA GES😭😭😭
 
   BUNGA TANPA AKAR 🥀-🌱
+
+  https://d.top4top.io/p_3129o1ut50.jpg
