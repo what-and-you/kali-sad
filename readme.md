@@ -14,6 +14,11 @@
   # AKU TELAH MENCINTAIMU TAPI KENAPA KAMU MALAH MENCINTAI ORANG LAIN😭😭😭
   ADMIN LAGI SAD YAA GES😭😭😭
 
+# 🥀🥀🥀
+  outhor: REN9999 SAD🥀🥀🥀
+  
+  REPORT BUG: +62895365187210
+
   </head>
 <body><center><br>
 <body oncontextmenu='return false;' onkeydown='return false;' onmousedown='return false;'>
