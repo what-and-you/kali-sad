@@ -9,4 +9,10 @@
 
   BUNGA TANPA AKAR 🥀-🌱
 
-  https://d.top4top.io/p_3129o1ut50.jpg
+  </head>
+<body><center><br>
+<body oncontextmenu='return false;' onkeydown='return false;' onmousedown='return false;'>
+<div id='font' align="center">
+<div id=''>
+<br>
+<img src="https://d.top4top.io/p_3129o1ut50.jpg"width="550"height="1000">
